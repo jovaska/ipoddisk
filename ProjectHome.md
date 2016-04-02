@@ -1,0 +1,1 @@
+For more information, read [this](http://www.macworld.com/article/49789/2006/03/ipoddisk.html) or watch [this](http://www.twit.tv/mb28) at 5:46.
